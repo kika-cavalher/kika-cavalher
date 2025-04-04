@@ -1,4 +1,5 @@
 ## 💜 Hello, my name is <strong>Erica Cavalher!</strong>
+ericavalher@gmail.com
 
 > Career focus in QA (Quality Assurance). I am communicative and proactive. I like to work searching for solutions, while trying to anticipate demands in order to avoid delays or unexpected issues. I am curious and use it as a drive to learn something new every day, gaining experience in the tasks I do. I consider myself organized and I like to have a global view of the activities to be able to work focused on continuous improvement. I believe in meeting deadlines for quality deliveries and I can coordinate processes with resilience and empathy.
 
